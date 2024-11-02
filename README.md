@@ -2,7 +2,7 @@
 
 ⠀ **Just a heads up** !*!* ⠀ :
 
-⠀- ABSOLUTELY DO NOT COPY MY SKINS !!
+⠀- ***DO NOT COPY MY SKINS***
 
 ⠀- i prefer to stay out of online discourse and controversy so i urge you to not involve me in that sort of thing. if theres a problem a simple whisper will do (or just dont talk to me at all)
 
