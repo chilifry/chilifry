@@ -1,4 +1,4 @@
-![image](https://media.discordapp.net/attachments/854614425633423401/1167711860313829407/51f06143.gif?ex=67266faa&is=67251e2a&hm=31d445d66a52455531c650692455d1a328f6bb2bca27ea1306fbb55737bcae0e&) _hi!! h'lo!!! i'm rubi_
+![image](https://media.discordapp.net/attachments/854614425633423401/1167711860313829407/51f06143.gif?ex=67266faa&is=67251e2a&hm=31d445d66a52455531c650692455d1a328f6bb2bca27ea1306fbb55737bcae0e&) _hi!! h'lo!!! i'm rybie_
 
 ⠀ **Just a heads up** !*!* ⠀ :
 
