@@ -8,4 +8,3 @@
 
 ⠀- i dont mind if you sit with me! though please refrain from doing so when i have DNI in my name or if im sitting with someone else
 
-⠀- usually seen very awkwardly moving around the mcyt area by myself. please have pity.
