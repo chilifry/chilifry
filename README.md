@@ -8,4 +8,5 @@
 
 ⠀- i dont mind if you sit with me! though please refrain from doing so when i have DNI in my name or if im sitting with someone else
 
-also heres my <a href="‎‎(https://chilifries.atabook.org/)">‎‎新book</a> !!! send me a message 
+also heres my ‎‎新book !! send me a message 
+--> https://chilifries.atabook.org/
