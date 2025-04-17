@@ -1,6 +1,8 @@
-hi!! h'lo!!! i'm rybie :]  i'm literally js a guy making silly ponies so don't be afraid to interact 
+</br>
+<h4>hi!! h'lo!!! i'm rybie :]  i'm literally js a guy making silly ponies so don't be afraid to interact</h4>
 
-⠀ **Just a heads up** !*!* ⠀ :
+⠀<h2> **Just a heads up** !*!* ⠀ : </h2>
+
 
 ⠀- ***DO NOT COPY MY SKINS*** light inspo is fine though no problem w that!
 
@@ -10,5 +12,7 @@ hi!! h'lo!!! i'm rybie :]  i'm literally js a guy making silly ponies so don't b
 
 ⠀- i'm not really into roleplay sooo **IWC** i guess
 
-also heres my ‎‎atabook !! send me a message 
+</br>
+<h4>also heres my ‎‎atabook !! send me a message </h4>
 --> https://chilifries.atabook.org/
+</br>
