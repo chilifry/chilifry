@@ -8,7 +8,7 @@ hi!! h'lo!!! i'm rybie :]  i'm literally js a guy making silly ponies so don't b
 
 ⠀- i dont mind if you sit with me! though please refrain from doing so when i have DNI in my name or if im sitting with someone else
 
- - i'm not really into roleplay sooo **IWC** i guess
+⠀- i'm not really into roleplay sooo **IWC** i guess
 
 also heres my ‎‎atabook !! send me a message 
 --> https://chilifries.atabook.org/
