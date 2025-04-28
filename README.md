@@ -12,7 +12,7 @@
 
 ⠀⋆ i'm not really into roleplay sooo **IWC** i guess
 
- ⋆ anyone under 13 will be hidden or ignored 
+  ⋆ anyone under 13 will be hidden or ignored 
 
 </br>
 <h4>also heres my ‎‎atabook !! send me a message </h4>
