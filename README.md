@@ -1,4 +1,4 @@
-</br>
+
 <h4>hi!! h'lo!!! i'm rybie :]  i'm literally js a guy making silly ponies so don't be afraid to interact</h4>
 
 ⠀<h2> **Just a heads up** !*!* 　: </h2>
